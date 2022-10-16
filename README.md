@@ -3,7 +3,7 @@
 - I’m interested in programming and design.
 - I’m currently learning in the school.
 - I’m looking to collaborate on SPX-Studio.
-- How to reach me? My discord Grippp#0427.3c.png)
+- How to reach me? My discord Grippp#0427.
 
 
 
